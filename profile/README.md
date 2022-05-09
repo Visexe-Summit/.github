@@ -1,4 +1,4 @@
-## Hi there 👋
+## Visexe Summit - Meet your Future 👋
 
 <!--
 
